@@ -60,7 +60,7 @@
 | | |
 |---|---|
 | **Hua Hin Vittayalai School** | English-Mathematics Program |
-| 2020 – 2023 | GPX: 3.23 |
+| 2020 – 2023 | GPX: 2.88|
 
 ---
 
